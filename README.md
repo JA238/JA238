@@ -13,4 +13,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: jadarsh031@gmail.com
 - 😄 Pronouns: HE/HIM
 - ⚡ Fun fact: NOTHING IS IMPOSSIBLE
-
